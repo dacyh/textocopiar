@@ -1,4 +1,11 @@
-https://www.mediafire.com/file/5bi8puauthqilc9/Windows_8_x86_%2526_x64_Espa%25C3%25B1ol.iso/fil```
+https://www.mediafire.com/file/5bi8puauthqilc9/Windows_8_x86_%2526_x64_Espa%25C3%25B1ol.iso/fil
+https://drive.google.com/file/d/1JkWSAj0Rh9ZFLPl9I5QZSsi87bFQ1wfZ/view?usp=drive_link
+
+https://drive.google.com/file/d/1YdClLrgD2r2tgTWRQDJRnHg72y4aBHj1/view?usp=drive_link
+
+https://drive.google.com/file/d/1zupb64NCV79UU3ZdoE9VSilH3BVFQeuz/view?usp=drive_link
+
+```
 
 
 Atalhos que você já pode conhecer:
